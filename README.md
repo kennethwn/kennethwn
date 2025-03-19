@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢 I am currently work at PT Saka Farma Laboratories<br>🏫 Last year computer science student Binus @Bandung<br>💻 Passionate in Software Engineering<br>🌱 Willing to learn and growth mindset
+🏢 I am currently work at PT Indoraya Sehati Remittance<br>🏫 Graduate computer science student Binus @Bandung<br>💻 Passionate in Software Engineering<br>🌱 Willing to learn and growth mindset
 
 
 ## 🌐 Socials:
